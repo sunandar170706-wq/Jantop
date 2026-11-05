@@ -1,2 +1,0 @@
-# Jantop
-Tepung ayam crispy
